@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @dev-tashes
+- 👀 I’m interested in becoming a jack of all trades
+- 🌱 I’m currently learning medicine and further tech stuff
